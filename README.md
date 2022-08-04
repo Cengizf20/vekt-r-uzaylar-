@@ -1,0 +1,1 @@
+# vekt-r-uzaylar-
